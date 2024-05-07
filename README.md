@@ -10,8 +10,7 @@ Meu nome é Marcone Maesta Mazaia
 
 marconemaesta@prof.educacao.sp.gov.br
 
-![](https://media1.tenor.com/m/lplqzKb-4iUAAAAd/you-should-be-studying-cute-cat.gif
-)
+![](https://tenor.com/pt-PT/view/143-filiny-143-filiny-gif-5032562237077584653)
 
 
 
