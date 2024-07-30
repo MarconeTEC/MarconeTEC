@@ -7,7 +7,7 @@ Meu nome é Marcone Maesta Mazaia
 
  Você pode entrar em contato comigo 📫
 
-#Palmeiras não tem mundial#
+# Palmeiras não tem mundial #
 
 marconemaesta@prof.educacao.sp.gov.br
 
